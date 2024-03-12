@@ -1,5 +1,13 @@
 How to make harira: Step-by-Step
 
+Spices:
+Ground turmeric
+Ground cumin
+Ground ginger
+Ground cinnamon
+Ground black pepper
+Pinch of Cayenne (Tip: you can skip the cayenne and stir in a little bit of homemade harissa paste. It's next level delicious!)
+
 Cook onions, celery, and carrots
 Garb a large pot or Dutch oven (this is the one I use) and cook up the chopped onions, celery and carrots in a bit of extra virgin olive oil until softened a bit (about 5 minutes). Season with kosher salt and add the garlic and spices and cook another minute or so (your kitchen will smell amazing)
 onions, celery, carrots and spices cooked in a pot
