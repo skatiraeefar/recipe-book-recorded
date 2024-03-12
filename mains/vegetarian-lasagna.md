@@ -47,6 +47,7 @@
 5. **Bake:**
    - Cover the lasagna with aluminum foil and bake in the preheated oven for 25 minutes.
    - Remove the foil and bake for another 15-20 minutes, or until the cheese is bubbly and golden brown.
+   - empty stamoche
 
 6. **Serve:**
    - Let the lasagna cool for 10-15 minutes before slicing.
