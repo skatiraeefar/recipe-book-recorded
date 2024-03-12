@@ -13,3 +13,4 @@ some nice recipes.
 - [mains](mains)
 - [sides](sides)
 - [desserts](desserts)
+- [pinchos](pinchos)
