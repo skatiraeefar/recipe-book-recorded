@@ -4,7 +4,7 @@
 
 - Vegetable oil
 - 1kg potatoes
-- 8 chicken eggs
+- 7 chicken eggs
 
 
 ## Instructions
