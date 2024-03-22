@@ -24,4 +24,8 @@ Steps:
 8. If the stew is still very thin, you can take the lid off the pan while simmering to let it thicken.
 
 Note: If you want a vegetarian version, you can fry oyster mushrooms with onion instead of chicken, but then you should add it at the same time as the quince.
+
+Serve with (iranian/basmati) rice, salad and yoghurt. 
+
+
  
